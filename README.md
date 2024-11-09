@@ -24,29 +24,31 @@
 ⟡  Biromantic ₊ Demi-girl  !
 
  　
-⟡  Minor
+⟡  __Minor__
 
 　
 　　　　⸻⸻⸻
 #
 
 <!-- what -->
-<img align="left" alt="Mizuki2" width="300" src="https://64.media.tumblr.com/a487ad71c06864fc2471eed7b31980f1/5ed58768fcf53ef2-71/s400x600/1c458a033bea1088022a05c5ae82c670cc66dbcd.pnj">
+<img align="left" alt="Mizuki2" width="400" src="https://64.media.tumblr.com/a487ad71c06864fc2471eed7b31980f1/5ed58768fcf53ef2-71/s400x600/1c458a033bea1088022a05c5ae82c670cc66dbcd.pnj">
 <h4 align="center">࿐　🎀　BYI ˖ DNI　◞</h4>
 
     
-  ❥   BYF : Please use tone tags for me, it's okay not to use  them but i feel it is necessary for me to avoid misunderstandings and problems. • I can be sarcastic most of the time, saying things that i don't mean as a joke. • Do tell me if I made you uncomfortable or did something wrong. I will often not know unless told so about it. • I am sensitive and short-tempered so please be patient with me. • Do not act like you are close to me if we are strangers especially if we've talked for the first time. • I don't consider this as 'cover discomfort' but i still hate it when people cover my skins. I might cuss a lot depending on my mood (i do not cuss in every single sentence.)
+  ❥   BYF : Please use tone tags for me, it's okay not to use them but i feel it is necessary for me to avoid misunderstandings and problems. • I can be sarcastic most of the time, saying things that i don't mean as a joke. • Do tell me if I made you uncomfortable or did something wrong. I will often not know unless told so about it. • I am sensitive and short-tempered so please be patient with me. • Do not act like you are close to me if we are strangers especially if we've talked for the first time. • I don't consider myself as someone with 'cover discomfort' but i still hate it when people cover my skins. • I might cuss a lot depending on my mood (i do not cuss in every single sentence.)
 
      
-  ❥   DNI : [basic dni criteria](https://dni-criteria.carrd.co/). • disrespecting my boundaries or even my friends'. • engages in too much drama. • Ship incest, large age gaps, and/or lolisho, you're a loli/shotacon, etc. • You actively go out and harass me for my interests. Just block me all u want i dont care. • You make heavy NSFW or SH jokes.
+  ❥   DNI : [basic dni criteria](https://dni-criteria.carrd.co/). • disrespecting my boundaries or even my friends'. • engages in too much drama. • Ship incest, large age gaps, and/or lolisho, you're a loli/shotacon, etc. • You actively go out and harass me for my interests. Just block me all u want i dont care. • You make heavy/detailed NSFW or SH jokes.
+
+#
 
   <!-- INTERESTS -->
      
 <img alt="Header" src="https://64.media.tumblr.com/cdbcf1d47e63e35d9d9d54c570ad7480/2b8465f639b2f1ab-80/s2048x3072/a58763cb43cd681b0e9a4808da2e907fb5d9c7ff.pnj">
 <h4 align="center">࿐　.　INTERESTS　🍓◞</h4>
 
-⟡  YOUTUBERS : KREW, Flamingo, Tommyinnit, Tubbo, Philza, and lots more.
+⟡  **YOUTUBERS** : KREW, Flamingo, Tommyinnit, Tubbo, Philza, and lots more.
 
-⟡  GAMES : Dandy's world, MINECRAFT, OMORI, pony town, Evade, PJSK, CRK games, gacha, Genshin Impact & more.
+⟡  **GAMES** : Dandy's world, MINECRAFT, OMORI, pony town, Evade, PJSK, CRK games, gacha, Genshin Impact Regretevator, Honkai: Star rail, DDLC, Pressure & more.
 
-⟡  SHOWS : BFDI, II, Alien Stage, andd i do not remember the others. Will update when i do.
+⟡  __**SHOWS**__ : BFDI, II, Alien Stage, Madoka Magica, MLP, TAWOG, ONE (object show), ITFT, Animatic Battle & more. Most are cartoons but most of the time i do not remember the name of it.
