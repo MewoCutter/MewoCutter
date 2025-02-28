@@ -1,7 +1,5 @@
 <h1 align="center">HELLO WORLD 🎀</h1>
 
-<h3 align="center">WTTLB founder and owner !</h3>
-
 <img alt="Header" src="https://64.media.tumblr.com/d9445d5e772c62a4aeea2359fc965c2f/d4220ce088b27814-7e/s2048x3072/85285e617bb85e7929765e8d64ed9976e446a8ec.pnj">
 
 <img align="right" alt="Mizuki" width="300" src="https://64.media.tumblr.com/ba5177ae165bbee4ba8dc64bbd255baa/5ed58768fcf53ef2-16/s400x600/1bfb349cb342d2984cffabc9b81fd924694ac057.pnj">
@@ -11,10 +9,10 @@
 　  　　 ⸻⊱༺ ✦ ༻⊰⸻
       
 　
-࿐　MIZU ˖ MEWO　📌 ◞
+࿐　KELSEY ˖ BASIL　📌 ◞
 
 　　　
-◟ you can also call me VIO or AUBREY.
+◟ you can also call me MIZU or MEWO.
 
 
  　
@@ -38,7 +36,7 @@
   ❥   BYF : Please use tone tags for me, it's okay not to use them but i feel it is necessary for me to avoid misunderstandings and problems. • I can be sarcastic most of the time, saying things that i don't mean as a joke. • Do tell me if I made you uncomfortable or did something wrong. I will often not know unless told so about it. • I am sensitive and short-tempered so please be patient with me. • Do not act like you are close to me if we are strangers especially if we've talked for the first time. • I don't consider myself as someone with 'cover discomfort' but i still hate it when people cover my skins. • I might cuss a lot depending on my mood (i do not cuss in every single sentence.)
 
      
-  ❥   DNI : [basic dni criteria](https://dni-criteria.carrd.co/). • disrespecting my boundaries or even my friends'. • engages in too much drama. • Ship incest, large age gaps, and/or lolisho, you're a loli/shotacon, etc. • You actively go out and harass me for my interests. Just block me all u want i dont care. • You make heavy/detailed NSFW or SH jokes.
+  ❥   DNI : [basic dni criteria](https://dni-criteria.carrd.co/). • disrespecting my boundaries or even my friends'. • engages in too much drama. • Ship incest, large age gaps, and/or lolisho, you're a loli/shotacon, etc. • You actively go out and harass me for my interests. Just block me all u want i dont care. • You make heavy NSFW or SH jokes.
 
 #
 
