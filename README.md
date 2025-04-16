@@ -1,4 +1,4 @@
-<h1 align="center">Kel The Prawn: THE ULTIMATE DARK LORD ENTHUSIAST AND HIS #1 FAN 🎀</h1>
+<h1 align="center">Kel The Prawn: THE ULTIMATE DARK LORD ENTHUSIAST & #1 FAN 🎀</h1>
 
 <img alt="Header" src="https://64.media.tumblr.com/d9445d5e772c62a4aeea2359fc965c2f/d4220ce088b27814-7e/s2048x3072/85285e617bb85e7929765e8d64ed9976e446a8ec.pnj">
 
