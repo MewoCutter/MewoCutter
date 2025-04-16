@@ -9,7 +9,7 @@
 　  　　 ⸻⊱༺ ✦ ༻⊰⸻
       
 　
-࿐　KELSEY ˖ BASIL　📌 ◞
+࿐　KELSEY ˖ DARK　📌 ◞
 
 　　　
 ◟ you can also call me MIZU or MEWO.
