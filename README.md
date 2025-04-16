@@ -16,7 +16,7 @@
 
 
  　
-⟡  They/He
+⟡  Any prns
 
  　
 ⟡  Biromantic ₊ Demi-girl  !
@@ -45,8 +45,8 @@
 <img alt="Header" src="https://64.media.tumblr.com/cdbcf1d47e63e35d9d9d54c570ad7480/2b8465f639b2f1ab-80/s2048x3072/a58763cb43cd681b0e9a4808da2e907fb5d9c7ff.pnj">
 <h4 align="center">࿐　.　INTERESTS　🍓◞</h4>
 
-⟡  **YOUTUBERS** : KREW, Flamingo, Tommyinnit, Tubbo, Philza, and lots more.
+⟡  **YOUTUBERS** : KREW, Flamingo, Tommyinnit, and idk how many bro.
 
 ⟡  **GAMES** : Dandy's world, MINECRAFT, OMORI, pony town, Evade, PJSK, CRK games, gacha, Genshin Impact Regretevator, Honkai: Star rail, DDLC, Pressure & more.
 
-⟡  __**SHOWS**__ : BFDI, II, Alien Stage, Madoka Magica, MLP, TAWOG, ONE (object show), ITFT, Animatic Battle & more. Most are cartoons but most of the time i do not remember the name of it.
+⟡  __**SHOWS**__ : AVA/AVM, BFDI, II, Alien Stage, Madoka Magica, MLP, TAWOG, ONE (object show), ITFT, Animatic Battle & more. Most are cartoons but most of the time i do not remember the name of it.
