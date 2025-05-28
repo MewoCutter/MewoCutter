@@ -24,7 +24,7 @@
  　
 ⟡  __Minor__
 
-
+ 　
 ⟡  You may c+h w me freely, i don't mind it at all ^_^
 　
 　　　　⸻⸻⸻
