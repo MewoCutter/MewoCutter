@@ -1,4 +1,4 @@
-<h1 align="center">Kel The Prawn: THE ULTIMATE DARK LORD ENTHUSIAST & #1 FAN 🎀</h1>
+<h1 align="center">Kel The Shrimp: THE ULTIMATE DARK LORD ENTHUSIAST & #1 FAN 🎀</h1>
 
 <img alt="Header" src="https://64.media.tumblr.com/d9445d5e772c62a4aeea2359fc965c2f/d4220ce088b27814-7e/s2048x3072/85285e617bb85e7929765e8d64ed9976e446a8ec.pnj">
 
@@ -9,21 +9,23 @@
 　  　　 ⸻⊱༺ ✦ ༻⊰⸻
       
 　
-࿐　KELSEY ˖ DARK　📌 ◞
+࿐　KELSEY ˖ MEWO　📌 ◞
 
 　　　
-◟ you can also call me MIZU or MEWO.
+◟ you can also call me MIZU or SHRIMP.
 
 
  　
 ⟡  Any prns
 
  　
-⟡  Biromantic ₊ Demi-girl  !
+⟡  Aroace ₊ Demi-girl  !
 
  　
 ⟡  __Minor__
 
+
+⟡  You may c+h w me freely, i don't mind it at all ^_^
 　
 　　　　⸻⸻⸻
 #
@@ -47,6 +49,6 @@
 
 ⟡  **YOUTUBERS** : KREW, Flamingo, Tommyinnit, and idk how many bro.
 
-⟡  **GAMES** : Dandy's world, MINECRAFT, OMORI, pony town, Evade, PJSK, CRK games, gacha, Genshin Impact Regretevator, Honkai: Star rail, DDLC, Pressure & more.
+⟡  **GAMES** : FORSAKEN, Dandy's world, MINECRAFT, OMORI, pony town, Evade, PJSK, CRK games, gacha, Genshin Impact Regretevator, Honkai: Star rail, DDLC, Pressure & more.
 
 ⟡  __**SHOWS**__ : AVA/AVM, BFDI, II, Alien Stage, Madoka Magica, MLP, TAWOG, ONE (object show), ITFT, Animatic Battle & more. Most are cartoons but most of the time i do not remember the name of it.
