@@ -19,7 +19,7 @@
 ⟡  Any prns
 
  　
-⟡  Aroace ₊ Demi-girl  !
+⟡  Aroace  !
 
  　
 ⟡  __Minor__
