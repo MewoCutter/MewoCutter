@@ -10,7 +10,7 @@
 
 
  　
-⟡  Any prns . __He/Him preferred__
+⟡  Any prns .
 
  　
 ⟡  Aroace  !
